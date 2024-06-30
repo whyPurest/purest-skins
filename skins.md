@@ -4,5 +4,3 @@
 # [MonkoGlassTest](https://drive.google.com/file/d/1HHECSnz0t6dvGq_I-gD3pjdlBUw-p0Ed/view?usp=sharing)
 ![screenshot068](https://github.com/thepro2k/Maliszewski-osu-skins/assets/108192718/e3207863-9b2e-4a80-9d40-52c40bcc5d59)
 
-# [‎tekkito_rafis](https://drive.google.com/file/d/1J9QMfkLAaJK2aDMeUqwIdOve6rwulO_t/view?usp=sharing)
-![screenshot157](https://github.com/thepro2k/Maliszewski-osu-skins/assets/108192718/77f928c8-f0fe-4df6-b80c-881c0bed1394)
